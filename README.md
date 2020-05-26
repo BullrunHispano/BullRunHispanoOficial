@@ -1,2 +1,2 @@
-# 1dapp.github.io
-Earn alots ETH with 0.15 ETH.
+# BULLRUN HISPANO
+Empeiza a ganar ETH con sólo invertir 0.15 ETH.
